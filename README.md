@@ -1,1 +1,0 @@
-# Internship-studio-ML-project
